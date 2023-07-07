@@ -1,0 +1,1 @@
+Посилання на скріншоти - https://monosnap.com/file/T4eJjH3CdrWLdQ9ahcUfOwQC7ljJT5
